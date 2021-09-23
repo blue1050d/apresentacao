@@ -1,6 +1,6 @@
 Sejam bem-vindos ao meu perfil! ;)
 
-Sou técnico em eletrônica de formação, e estou dedicando uma parte do meu tempo nos projetos de Data Analytics para construir um portfólio atraente.
+Sou técnico em eletrônica de formação, e estou me dedicando a Data Analytics para ter um diferencial, e consequentemente, uma oportunidade.
 
 Espero que gostem do meu perfil. Abraços!
 
